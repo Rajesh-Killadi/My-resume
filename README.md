@@ -2,7 +2,7 @@
 
 **Mobile:** +918466869096  
 **Email id:** rajeshkilladi96@gmail.com  
-**GitHub:** [Rajesh-Killadi][(https://github.com/Rajesh-Killadi)]
+**GitHub:** [https://github.com/Rajesh-Killadi]
 
 ### CAREER OBJECTIVE
 Seeking a position to utilize my skills and abilities in the technology industry that offers professional growth as well as organizational growth.
